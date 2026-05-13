@@ -1,2 +1,2 @@
-# openinstitutewales
+# Open Institute Wales
 Archive for the Open Institute 
