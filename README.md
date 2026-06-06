@@ -1,2 +1,7 @@
 # Open Institute
 Archive for the Open Institute 
+
+The Open Institute is an independent arts organisation based in Wrexham, Wales. It offers affordable studio spaces and a venue for workshops in its project space. There is also a gallery that hosts a programme of visual arts exhibitions and events.
+The values of the Open Institute are underpinned by a desire to support peer-to-peer knowledge sharing of arts practice, in an environment that is inclusive, supportive and friendly. It is intended to be collaborative, community driven and available to all.
+What’s in the name? Open references open-source culture and institute was chosen as when used as a noun, it is about advancing the study of a particular subject, or as a verb it is about starting something or putting ideas into effect.
+Who’s behind this? Taking the lead to get things off the ground are Matthew Macaulay and Gillian Swan. Matthew has over a decade of running a gallery, studio spaces and supporting artists, having previously run Classroom Gallery in Coventry, West Midlands. He is also a painter and lecturer at Wrexham University. Gillian has over ten years’ experience of working with artists as one of the founding members of The Stone Space gallery in Leytonstone, East London – an independent not-for-profit gallery run by volunteers. She remains part of the organising group that develop the exhibition programme and support artists to exhibit. She also works in education.
